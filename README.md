@@ -1,0 +1,1 @@
+This self-assessment tool gives you a snapshot of your marketing performance. For a deeper dive, NLC's Growth Diagnostic® uncovers exactly where you're winning — and where revenue is slipping through the cracks. Get started at neonlizardcreative.com.
